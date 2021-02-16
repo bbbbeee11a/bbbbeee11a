@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bbbbeee11a
+- 👀 I’m interested in 🎶🎬📸
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on ... kakao someday...
+- 📫 How to reach me bbbbeeella@jbnu.ac.kr
