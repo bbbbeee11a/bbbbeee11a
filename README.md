@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @bbbbeee11a
-- 👀 I’m interested in 🎶🎬📸
-- 📫 How to reach me bbbbeeella@jbnu.ac.kr
+
